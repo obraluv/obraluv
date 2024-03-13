@@ -1,4 +1,4 @@
-👋 Hi, I’m @obraluv
+👋 Hi, my name is oluwabunmi,you can call me Obra
 👀 I’m an aspiring Data Scientist and Machine Learning Engineer
 🌱 I’m currently enrolled in a comprehensive data science bootcamp, welcome as i explore my coding journey to becoming the greatest Data Scientist and Machine learning engineer of all time, lol...
 😄 Pronouns: She/her
